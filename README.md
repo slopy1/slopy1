@@ -1,2 +1,2 @@
 ## Hi there 👋
-- 📫 How to reach me: Krodrr117@calstatela.ed
+- 📫 How to reach me: Krodr117@calstatela.ed
